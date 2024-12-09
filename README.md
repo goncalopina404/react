@@ -1,0 +1,1 @@
+nextjs-4ddvs5ny2-goncalopina404s-projects.vercel.app
